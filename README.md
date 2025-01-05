@@ -3,8 +3,7 @@
 ## Personal Information
 
 - *Location:* Lebanon, Beirut - Al Hadath
-- *Contact:*  
-  - Phone: +96178837276  
+- *Contact:*    
   - Email: <rouaa.hmz@gmail.com>  
   - [Facebook Profile](https://www.facebook.com/share/15fLEQG46Y/?mibextid=wwXIfr)
 
