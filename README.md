@@ -4,7 +4,7 @@
 
 - *Location:* Lebanon, Beirut - Al Hadath
 - *Contact:*
-  - Email: <rouaa.hmz@gmail.com> 
+  - Email: <rouaa.hmz@gmail.com>
   - [Facebook Profile](https://www.facebook.com/share/15fLEQG46Y/?mibextid=wwXIfr)
 
 ---
